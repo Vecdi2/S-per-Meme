@@ -1,1 +1,1 @@
-# S-per-Meme
+# Süper Meme
